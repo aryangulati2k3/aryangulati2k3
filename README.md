@@ -1,6 +1,6 @@
-### 🚀 **Aryan Gulati** | *Software Engineer & Rookie Game Dev*
+### **Aryan Gulati** | *SWE & Rookie Game Dev*
 
-👋 Hi, I’m **@aryangulati2k3**!
+👋 Hi, I’m **Aryan Gulati**!
 
 😄 Pronouns: **he/they**  
 
